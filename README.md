@@ -1,1 +1,1 @@
-its just my training projects and nothing seriuos
+its just my training projects 
